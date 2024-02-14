@@ -7,7 +7,7 @@
 - 🤔 I’m looking for help with grow up in the market
 - 💬 Ask me about Python
 - 📫 How to reach me: Social Medias and number.
-- 😄 Pronouns: He
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I know a little about geography (lol)
 -->
 
