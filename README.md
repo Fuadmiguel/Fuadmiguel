@@ -2,7 +2,6 @@
 ## My name is Fuad Miguel and my nickname is "Fuadmiguel"!
 
 - 👯 I’m looking to collaborate on a advanced and strutured company
-- 🤔 I’m looking for help to grow on market
 - 📫 How to reach me: Social Medias and number.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I know a little about geography (lol)
